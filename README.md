@@ -2,6 +2,6 @@
 
 [Ibrahim_Yasin_Goktas_CV.pdf](https://github.com/user-attachments/files/16575714/Ibrahim_Yasin_Goktas_CV.pdf)
 
-
-![image](https://user-images.githubusercontent.com/103072957/234389605-f5fb6c6f-f8c4-4adc-9eaf-f97c60a65db7.png)
+![First Page of Resume](https://github.com/user-attachments/assets/b3887aba-e145-4409-9c1a-37edfbbf04ae)
+![Second Page of Resume](https://github.com/user-attachments/assets/e9d1c40a-f3f0-44e8-9d97-ddf57f6b717c)
 
